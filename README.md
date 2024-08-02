@@ -8,9 +8,9 @@ Multidisciplinary Problem Solver
 
 ***
 
-I am tring to be a professional ITer.  
-Aim to debug the toughest problems in the world.  
-Probably, I may be the best IT expertise in the field of constructing your housing.  
+😵I am tring to be a professional ITer.  
+🤔Aim to debug the toughest problems in the world.  
+😼Probably, I may be the best IT expertise in the field of constructing your housing.  
 
 ***
 **Follow SM, DM Anytime**  
