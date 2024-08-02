@@ -1,16 +1,18 @@
-## Hi there 👋
+# About me  👋
 
-<!--
-**Ring8688/Ring8688** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Hi There! This is Jasper Zhang. Nice to meet You.**   
+   
+Master of IT Student @UoA  
+Civil Eng & Interior Design Background   
+Multidisciplinary Problem Solver   
 
-Here are some ideas to get you started:
+***
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I am tring to be a professional ITer.  
+Aim to debug the toughest problems in the world.  
+Probably, I may be the best IT expertise in the field of constructing your housing.  
+
+***
+**Follow SM, DM Anytime**  
+LinkedIn: [My Profile](https://www.linkedin.com/in/jasper-zhang-248b40268/)  
+  
